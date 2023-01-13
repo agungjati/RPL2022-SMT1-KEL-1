@@ -11,4 +11,6 @@ M. Andian Saputra (2022023) </br>
 Kata Ersada Pinem (2022026) </br>
 Muhammad Rahmadi Husada (2022027) </br>
 
-Link persentasi : https://youtu.be/Ua9AuagFCEw
+Link persentasi : 
+- https://youtu.be/Ua9AuagFCEw
+- https://youtu.be/R9d2__AW_M0
